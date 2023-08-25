@@ -2,6 +2,8 @@
 
 这是李跳跳的备份包,所有文件均来自 [https://pan.baidu.com/s/1IHPQp1Rgn9K67N-v4ZcNxw?pwd=1233](https://pan.baidu.com/s/1IHPQp1Rgn9K67N-v4ZcNxw?pwd=1233) 于2023年8月24日备份
 
+以下两条links是李跳跳官方对于封杀的回应
+
 [https://mp.weixin.qq.com/s/ha6hHr40umlj-ExHdGFXXw](https://mp.weixin.qq.com/s/ha6hHr40umlj-ExHdGFXXw)
 
 [https://mp.weixin.qq.com/s/gsC9STZlGrPNNEKUV4btkA](https://mp.weixin.qq.com/s/gsC9STZlGrPNNEKUV4btkA)
